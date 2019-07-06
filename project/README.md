@@ -1,1 +1,0 @@
-# potaly.github.io
